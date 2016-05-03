@@ -19,3 +19,13 @@ Turkey (land occupied by the turks) had similiar looking bird to North American 
 Turkey the country name ( Türkiye), can be broken up into two parts, "Turk", a reference to people, and iye, meaning, land of.
 
 Other countries made similiar naming mistakes as England. An example is Isreal, were they believed that the birds were native to india, as they frequently purchased turkey from indian merchants. The work for turkey in hebrew is translated as "tarnagol hodu," which means chicken of india.
+
+%%Rough draft
+
+When Americans sit down and enjoy a traditional thanksgiving dinner once a year, it is commonplace for them to enjoy such age old classics such as corn, mashed yams, and Turkey. Each of these foods are a throwback to the United States' pilgrimatic history. Turkey, which is a bird that is indigenous to the America's, is often recognized as the pivotal part of a Thanksgiving meal; a portion that cannot be done without. It comes to question how the bird, which is only native the to the America's, has come to share a name with a European country far removed from the land where the bird was originally discovered.
+
+When Spanish Conquestadors first visited the United States in the early 1500's, they likely came across the large birds, which where easy to hunt as turkey's often eat while being stationary, on the ground. The turkey, being seen as easily domesticated, was brought back to europe by these Spanish Conquestadors. This likely occured around 1520. The bird was domesticated in England within a decade, and by the early 1600's it's name, "turkey", had been designated (William Shakespeare used the term in one of his plays, Twelfth Night, written in 1601 or 1602).
+
+Turkey did not come straight to England from the Western hemisphere, rather, it was brought up from southern europe by merchnat ships in the mediterannian sea. These merchants were called "Turkey Merchants," because this area of europe was ruled byt the Turkish empire at the time. Purchasers of the birds thought that they came from Turkey (the country), so they started to name the fowls after their supposed place of origin. The name stuck, and we continue to call the birds turkey's today!
+
+Other countries made similiar naming mistakes with turkey as England. An example is Isreal, were they believed that the birds were native to india, as they frequently purchased turkey from indian merchants. The work for turkey in hebrew is translated as "tarnagol hodu," which means chicken of india.
